@@ -1,6 +1,6 @@
 Chính sách bảo mật dữ liệu người dùng
-Chúng tôi tôn trọng quyền riêng tư dữ liệu của mọi khách hàng sử dụng dịch vụ của Tool casino
-Ứng dụng Tool casino sẽ không thu thập bất kỳ dữ liệu cá nhân nào của người dùng để lưu trữ và sử dụng trái phép.
+Chúng tôi tôn trọng quyền riêng tư dữ liệu của mọi khách hàng sử dụng dịch vụ của Tool Dwin68
+Ứng dụng Tool Dwin68 sẽ không thu thập bất kỳ dữ liệu cá nhân nào của người dùng để lưu trữ và sử dụng trái phép.
 Chúng tôi tích hợp tính năng bảo mật vào các dịch vụ để bảo vệ thông tin của bạn
 
 Tất cả các sản phẩm của Tool casino đều được tích hợp các tính năng bảo mật mạnh mẽ, liên tục bảo vệ thông tin của bạn. Thông tin chi tiết chúng tôi có được từ việc duy trì các dịch vụ giúp chúng tôi phát hiện và tự động chặn các mối đe dọa về bảo mật để chúng không bao giờ tiếp cận được đến bạn. Nếu phát hiện thấy điều gì đó có khả năng gây rủi ro mà chúng tôi cho là bạn nên biết, chúng tôi sẽ thông báo cho bạn và hướng dẫn bạn thực hiện các bước để được bảo vệ tốt hơn.
